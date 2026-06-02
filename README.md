@@ -1,1 +1,0 @@
-# jejak-karyaku
